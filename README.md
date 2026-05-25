@@ -12,11 +12,8 @@
 
 ###### [𝘢tabook](https://aevsria.atabook.org/?page=1)⠀⠀[𝘴trawpage](https://katefies.straw.page)⠀⠀[𝘱rns.𝘱age](https://en.pronouns.page/@aevsria)
 
-### <div align="center"> ⠀   _ _
-    ೀ 𓏼 ◜ ͡ ₊ ׅ ׄ __ t𝚑__ᥲ𝚝  𝚟ᦞ𝒾𝒸ᥱ ‚
-    … 𝒾t’᥉ 𝚜o 𝚏ᥲ𝚖𝒾ᥣ𝒾a𝓇 ⁺ ݂ ᜔♪ྀི𓏼 ׄ⑅  ͜ ໋֗◞
-_ _
-
+#### <div align="center">    ೀ 𓏼 ◜ ͡ ₊ ׅ ׄ ☯︎ _ ⍴ᥣᥱᥲsᥱ  ⍴ᥲrr᥆𝗍 ‚
+  𓅆 … ⍴ᥣᥱᥲsᥱ ‚ ⁺ ݂ ᜔♪ྀི𓏼 ׄ⑅  ͜ ໋֗◞
 <p align="center">
   <img src="https://github.com/floralies/floralies/blob/e40dfbf9f2533390475ab269ff288d41e5fca3ee/IMG_2231-removebg-preview.png" alt="Description">
 </p>
