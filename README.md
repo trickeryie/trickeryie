@@ -11,6 +11,6 @@
 
  ֔![image](https://github.com/floralies/test/blob/478a2a9f2150e89b383d179fe78f2ff3acee3513/IMG_2304.gif)　◜ ͡ ִ ֗ 𓏼iwcaution/care at all times　⋮　𝘢lways offtab or afk　
 
-###### <div align="center"> ⠀𓉸　cipher icons : @astr0v4l on tumblr 𓈒　
+###### <div align="center"> ⠀𓉸　cipher graphic + icon : @astr0v4l on tumblr 𓈒　
 
 <br clear="left"/>
